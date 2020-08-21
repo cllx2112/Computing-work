@@ -1,7 +1,8 @@
-# Some story for teachers Day 
+# Hi there, 
 
+**I am Li YiJia, a student from Dunman High school**
 
- **Hi person who is not welcome here**
+*Welcome :)
 
 
 
