@@ -1,7 +1,7 @@
-# You are not welcome go away 
-_please_
+# Some story for teachers Day 
 
- **Some story for Teachers day**
+
+ **Hi person who is not welcome here**
 
 -LIYIJIA 1B
 
